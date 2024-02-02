@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @clairebear0508
-- 👀 I’m interested in watching anime, coding stuff I like
+- 👀 I’m interested in watching anime, playing RPG games, and coding :)
 - 🌱 I’m currently 15 years old 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
